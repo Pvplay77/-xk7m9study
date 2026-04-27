@@ -1,1 +1,0 @@
-# -xk7m9study
